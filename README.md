@@ -1,4 +1,4 @@
-***I Create Projects like websites using html css to improve my coding skills I Made A Website Yesterday And Today It Will Update Once A Week 
+***I Create Projects like websites using html css to improve my coding skills I Made A Website Yesterday And Today It Will Update Once A Week or so
 ScreenShoots :***
 1. ![image](https://github.com/Coding-Yasaru-Deneh/Coding-Yasaru-Deneth/assets/175038252/41824764-8991-4f5d-b14f-b84aa0a2769f)
 
